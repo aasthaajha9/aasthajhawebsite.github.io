@@ -1,4 +1,4 @@
-My personal portfolio to help people know about me get in toch with me :)
+My personal portfolio to help people know about me and collaborate with me :)
 
 
 Website link- 
